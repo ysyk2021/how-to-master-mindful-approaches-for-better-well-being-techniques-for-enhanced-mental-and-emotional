@@ -8,5 +8,4 @@ The book is organized into chapters that explore different aspects of mindfulnes
 
 Whether you are new to mindfulness or seeking to deepen your practice, "How to Master Mindful Approaches for Better Well-being" offers an accessible and engaging guide to enhancing your mental and emotional health through the power of mindfulness.
 
-
 MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.

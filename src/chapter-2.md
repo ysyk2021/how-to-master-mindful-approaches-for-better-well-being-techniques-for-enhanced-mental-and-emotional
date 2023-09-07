@@ -1,5 +1,3 @@
-Chapter 2: The Science of Mindfulness
-=====================================
 
 Mindfulness practices have gained recognition as effective tools for improving mental and emotional well-being. In this chapter, we will explore the history and evolution of mindfulness practices, as well as the scientific research that has helped to demonstrate their efficacy.
 

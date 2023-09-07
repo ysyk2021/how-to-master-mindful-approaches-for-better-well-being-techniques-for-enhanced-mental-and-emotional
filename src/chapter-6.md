@@ -1,5 +1,3 @@
-Chapter 6: Improving Emotional Intelligence with Mindful Approaches
-===================================================================
 
 Emotional intelligence refers to the ability to recognize and regulate one's own emotions, as well as understand and empathize with the emotions of others. Mindful approaches can help individuals improve their emotional intelligence by enhancing self-awareness, building empathy and compassion, and navigating conflicts and challenging emotions. In this chapter, we will explore how mindful approaches can improve emotional intelligence.
 

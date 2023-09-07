@@ -1,5 +1,3 @@
-Chapter 7: Mindful Approaches to Mental Health and Well-being
-=============================================================
 
 Mindful approaches are evidence-based practices that can have numerous benefits on mental, emotional, and physical well-being. In this chapter, we will explore several applications of mindful approaches in mental health and well-being.
 

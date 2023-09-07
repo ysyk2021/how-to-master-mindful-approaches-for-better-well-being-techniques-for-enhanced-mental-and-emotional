@@ -1,5 +1,3 @@
-Chapter 4: Building a Mindful Mindset
-=====================================
 
 Building a mindful mindset involves cultivating awareness, presence, and acceptance. A mindful mindset can lead to greater resilience, improved well-being, and a more positive outlook on life. In this chapter, we will explore techniques for developing positive thinking patterns, strategies for overcoming negative self-talk, and the role of gratitude and positive emotions in mindful approaches.
 
@@ -48,5 +46,4 @@ Gratitude and positive emotions play an important role in mindful approaches to 
 * Improved physical health and well-being
 
 In conclusion, building a mindful mindset involves developing positive thinking patterns, overcoming negative self-talk, and cultivating gratitude and positive emotions. By incorporating these techniques into daily life, individuals can improve their mental and emotional well-being and develop greater resilience and optimism.
-
 

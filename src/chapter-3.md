@@ -1,5 +1,3 @@
-Chapter 3: Incorporating Mindfulness into Daily Life
-====================================================
 
 Incorporating mindfulness into daily life involves cultivating present-moment awareness and non-judgmental acceptance towards oneself and others. By practicing mindfulness throughout the day, individuals can improve their mental and emotional well-being and develop greater resilience in the face of challenges. In this chapter, we will explore the different types of mindfulness practices, techniques for practicing mindfulness throughout the day, and mindful eating and movement practices.
 

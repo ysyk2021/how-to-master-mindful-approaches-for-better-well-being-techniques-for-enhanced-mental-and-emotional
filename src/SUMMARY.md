@@ -33,3 +33,4 @@
   - [The Benefits of Mindfulness in Self-Discovery and Personal Growth](chapter-8-3.md)
 - [Conclusion](conclusion.md)
 - [Contacts](contacts.md)
+- [Our Other Books](other-books.md)

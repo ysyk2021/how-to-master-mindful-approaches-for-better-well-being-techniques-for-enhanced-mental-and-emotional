@@ -1,5 +1,3 @@
-Summarizing Key Points Presented in the Book
-===================================================================
 
 Throughout this book, we have explored various mindful approaches for enhancing mental and emotional health. In this chapter, we will summarize the key points presented in the book.
 

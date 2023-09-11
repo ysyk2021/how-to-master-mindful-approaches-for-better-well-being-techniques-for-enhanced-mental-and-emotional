@@ -1,5 +1,4 @@
-Chapter: Building Empathy and Compassion for Yourself and Others
-================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the profound significance of empathy and compassion in enhancing mental and emotional well-being. Developing these qualities towards oneself and others is a vital step on the path to achieving greater overall wellness.
 

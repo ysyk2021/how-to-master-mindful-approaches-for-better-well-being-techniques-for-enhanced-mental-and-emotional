@@ -1,5 +1,4 @@
-Chapter: Techniques for Developing Positive Thinking Patterns
-=============================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore a range of techniques and strategies aimed at cultivating positive thinking patterns. Developing a positive mindset is a fundamental component of achieving enhanced mental and emotional well-being.
 

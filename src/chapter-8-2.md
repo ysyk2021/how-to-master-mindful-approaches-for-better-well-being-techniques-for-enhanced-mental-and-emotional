@@ -1,5 +1,4 @@
-Chapter 4: Mindful Approaches to Developing a Meaningful Life
-=============================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore how mindfulness can be a powerful tool for developing a meaningful and purposeful life. By applying mindfulness principles to your daily activities and decisions, you can create a life that aligns with your values and brings a sense of fulfillment.
 

@@ -1,5 +1,4 @@
-Chapter: Mindfulness-Based Cognitive Therapy and Depression
-===========================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the role of Mindfulness-Based Cognitive Therapy (MBCT) in the treatment and prevention of depression. MBCT is a specialized form of mindfulness therapy that has demonstrated remarkable efficacy in enhancing mental and emotional well-being, particularly in individuals struggling with depression.
 

@@ -1,5 +1,4 @@
-Chapter 3: The Benefits of Mindfulness in Self-Discovery and Personal Growth
-============================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the profound benefits of mindfulness practices in the realms of self-discovery and personal growth. Mindfulness, a practice deeply rooted in ancient traditions, has gained significant popularity in recent years due to its transformative effects on mental and emotional well-being. By cultivating mindfulness, individuals can embark on a journey of self-exploration and experience substantial personal growth.
 

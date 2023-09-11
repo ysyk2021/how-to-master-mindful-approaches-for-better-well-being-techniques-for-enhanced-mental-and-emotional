@@ -1,5 +1,4 @@
-Chapter: Mindful Approaches to Reducing Anxiety and Promoting Relaxation
-========================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will delve into the effective mindful approaches that can help reduce anxiety and foster relaxation. Mindfulness techniques provide valuable tools for managing stress and promoting a sense of calm and well-being.
 

@@ -1,5 +1,4 @@
-Chapter: Understanding the Benefits of Mindfulness on Mental and Emotional Health
-=================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will delve into the profound and transformative effects of mindfulness on mental and emotional well-being. Mindfulness is a powerful tool that can enhance these aspects of our lives in numerous ways.
 

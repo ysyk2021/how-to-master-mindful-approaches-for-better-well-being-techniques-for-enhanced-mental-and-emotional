@@ -1,5 +1,4 @@
-Chapter 4: The Role of Mindfulness in Spiritual Development
-===========================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the profound and often overlooked role of mindfulness in spiritual development. While mindfulness is commonly associated with improving mental and emotional well-being, it also plays a significant role in nurturing one's spiritual journey, fostering a deeper connection with oneself and the universe.
 

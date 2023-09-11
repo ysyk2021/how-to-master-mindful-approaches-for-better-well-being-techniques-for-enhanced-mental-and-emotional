@@ -1,5 +1,4 @@
-Chapter 2: Understanding the Different Types of Mindfulness Practices
-=====================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the various types of mindfulness practices that can contribute to enhanced mental and emotional well-being. Understanding these different approaches will allow you to choose the techniques that resonate with you the most and align with your goals.
 

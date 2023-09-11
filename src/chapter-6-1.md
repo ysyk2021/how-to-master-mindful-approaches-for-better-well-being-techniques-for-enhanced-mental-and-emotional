@@ -1,5 +1,4 @@
-Chapter: Enhancing Self-Awareness and Emotional Regulation
-==========================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will delve into the vital skills of self-awareness and emotional regulation. These techniques are essential for achieving enhanced mental and emotional well-being through mindful approaches.
 

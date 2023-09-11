@@ -1,5 +1,4 @@
-Chapter: The Benefits of Mindfulness-Based Stress Reduction Programs
-====================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the remarkable advantages of Mindfulness-Based Stress Reduction (MBSR) programs, which have gained widespread recognition for their effectiveness in enhancing mental and emotional well-being.
 

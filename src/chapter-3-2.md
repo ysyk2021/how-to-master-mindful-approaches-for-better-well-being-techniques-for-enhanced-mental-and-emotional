@@ -1,5 +1,4 @@
-Chapter 3: Techniques for Practicing Mindfulness Throughout the Day
-===================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore various techniques for incorporating mindfulness into your daily life. These practices can help you cultivate greater awareness, reduce stress, and enhance your overall mental and emotional well-being. By integrating mindfulness into your everyday activities, you can experience its benefits more consistently.
 

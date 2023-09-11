@@ -1,5 +1,4 @@
-Chapter: Mindful Approaches to Navigating Conflicts and Challenging Emotions
-============================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the transformative power of mindfulness in effectively navigating conflicts and managing challenging emotions. These mindful approaches are essential tools for achieving enhanced mental and emotional well-being.
 

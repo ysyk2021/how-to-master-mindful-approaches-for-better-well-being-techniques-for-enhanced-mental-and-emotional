@@ -1,5 +1,4 @@
-Chapter: The History and Evolution of Mindfulness Practices
-===========================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will embark on a journey through time to explore the rich history and evolution of mindfulness practices. Understanding the origins and development of mindfulness is essential for mastering mindful approaches to enhance mental and emotional well-being.
 

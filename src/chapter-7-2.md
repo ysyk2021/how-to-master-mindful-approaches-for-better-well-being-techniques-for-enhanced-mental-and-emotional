@@ -1,5 +1,4 @@
-Chapter: Mindful Approaches to Treating Anxiety Disorders
-=========================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore how mindfulness techniques can be applied to treat various anxiety disorders, offering individuals effective strategies for managing and alleviating their symptoms.
 

@@ -1,5 +1,4 @@
-Chapter 5: Mindful Eating and Movement Practices
-================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the profound connection between mindfulness, our eating habits, and physical movement. By cultivating mindfulness in these areas, we can enhance our mental and emotional well-being, leading to a more balanced and fulfilling life.
 

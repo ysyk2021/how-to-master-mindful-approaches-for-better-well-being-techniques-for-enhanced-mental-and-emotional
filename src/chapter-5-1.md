@@ -1,5 +1,4 @@
-Chapter: Techniques for Identifying and Managing Stress Triggers
-================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore practical techniques for identifying and effectively managing stress triggers, empowering individuals to take proactive steps towards enhanced mental and emotional well-being.
 
